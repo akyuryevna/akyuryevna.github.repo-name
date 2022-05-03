@@ -1,1 +1,0 @@
-# akyuryevna.github.repo-name
